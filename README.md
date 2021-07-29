@@ -1,0 +1,1 @@
+Estou um pouco confusa, mas vamos indo e tentando fazer tudo funcionar né
